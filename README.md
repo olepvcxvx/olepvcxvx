@@ -1,16 +1,15 @@
-### Hi there 👋
+![](F5DA0A9F-9CCA-4241-94B5-E410AC1A7A90.png)
 
-<!--
-**0lepvc/0lepvc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![](BEF1F025-89B1-42FA-AB1D-4ED17608D92A.png)
 
-Here are some ideas to get you started:
+![](1256E2AD-C663-46DD-B792-BB9AF370EB8F.png)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](2889CA85-1D7F-46E2-8EDA-1177C03C3255.png)
+
+![](913F2FA0-CF93-42D1-A696-6AF38271C73F.png)
+
+![](3B367F5A-57F5-45E5-A2D6-D6A732E15E88.png)
+
+![](8FCE2C22-3B1A-4A97-902D-2844160FD0F1.png)
+
+![](167262AC-5B51-4D26-BAF3-33675704933A.jpeg)
